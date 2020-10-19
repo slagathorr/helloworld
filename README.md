@@ -1,1 +1,25 @@
-# helloworld
+# What is this?
+
+Welcome! You probably clicked a link in my email signature that told you that you don’t need to reply right now.
+
+# Why don’t I need to reply right now?
+
+I support and encourage flexible working.
+
+* If you got this email outside of your usual working time, I don’t expect a response until you are working again.
+* If you are in the middle of deep work, or catching a deadline, I don’t expect you to respond immediately.
+What does that mean?
+
+You work the hours that suit you - whether that’s 9-5, 12-8, or something else entirely! I don’t expect you to work outside of the hours that you choose to work.
+
+For me, my hours are normally 9am-5pm, Monday to Friday. But that’s not set in stone. I value my work-life balance and therefore those hours might shift a bit. I also travel quite a bit for work - so I have to adjust across time zones.
+
+Similarly, sometimes I batch my email activities so responses may be delayed a few hours.
+
+# What about when I send emails? Do I need to consider that you might not be at work?
+
+Don’t worry. Send the email! I will respond when I am next at work.
+
+# This was a wild ride. What do I do now?
+
+Go back to doing whatever it was you were doing before you came here! Just don’t feel pressured to reply to my email straight away.
