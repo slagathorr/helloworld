@@ -4,7 +4,7 @@ Welcome! You probably clicked a link in my email signature that told you that yo
 
 # Why don’t I need to reply right now?
 
-I support and encourage flexible working.
+I support and encourage flexible working. Especially during the pandemic we're all in.
 
 * If you got this email outside of your usual working time, I don’t expect a response until you are working again.
 * If you are in the middle of deep work, or catching a deadline, I don’t expect you to respond immediately.
