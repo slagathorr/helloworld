@@ -24,7 +24,7 @@ Don’t worry. Send the email! I will respond when I am next at work.
 
 Feel free to message me directly. I'm usually more attentive there, but again, if I'm heads down on a task I may have turned "Do not disturb" mode on and silenced notifications. I'll get back as soon as I can.
 
-Also know that because my hours, especially when traveling, are very non-traditionally 9-5, I may direct message on chat outside of 9-5 hours. Know that I'm always thinking about your local time zone and by no means do I expect a reply at whatever strange hour I'm messaging you. Get to it when you can. If it truly is time sensitive, I'll let you know.
+Also know that because my hours, especially when traveling, are very non-traditionally 9-5, I may direct message on chat outside of 9-5 hours. Know that I'm always thinking about your local time zone and by no means do I expect a reply at whatever strange hour I'm messaging you. It's usually just so I don't forget to ask in the morning, so get to it when you can. If it truly is time sensitive, I'll let you know.
 
 # This was a wild ride. What do I do now?
 
