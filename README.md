@@ -14,6 +14,8 @@ You work the hours that suit you - whether that’s 9-5, 12-8, or something else
 
 For me, my hours are normally 10am-6pm, Monday to Friday, US Eastern Time. But that’s not set in stone. I value my work-life balance and therefore those hours might shift a bit. I also travel quite a bit for work - so I have to adjust across time zones.
 
+Well, normally I do. The pandemic has shifted that down substantially.
+
 Similarly, sometimes I batch my email activities so responses may be delayed a few hours.
 
 # What about when I send emails? Do I need to consider that you might not be at work?
