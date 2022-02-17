@@ -28,3 +28,7 @@ Also know that because my hours, especially when traveling, are very non-traditi
 # This was a wild ride. What do I do now?
 
 Go back to doing whatever it was you were doing before you came here! Just don’t feel pressured to reply to my email straight away.
+
+# Why is Trogdor in the repository?
+
+I just noticed that, and I honestly have no clue. [Trogdor](https://www.youtube.com/watch?v=90X5NJleYJQ) is awesome though, burninating the countryside and all, so he stays.
