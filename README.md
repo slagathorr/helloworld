@@ -11,7 +11,7 @@ I support and encourage flexible working.
  
 What does this all mean? You work the hours that suit you - whether that’s 9-5, 12-8, or something else entirely! I don’t expect you to work outside of the hours that you choose to work.
 
-For me, my hours are normally 10am-6pm, Monday to Friday, US Eastern Time. But that’s not set in stone. I value my work-life balance and therefore those hours might shift a bit. I also travel quite a bit for work - so I have to adjust across time zones. Well, normally I do. The pandemic has shifted that down substantially. When vaccination rates shift up and work travel is safe, this may go back up.
+For me, my hours are normally 10am-6pm, Monday to Friday, US Eastern Time. But that’s not set in stone. I value my work-life balance and therefore those hours might shift a bit. I also travel quite a bit for work - so I have to adjust across time zones.
 
 Similarly, sometimes I batch my email activities so responses may be delayed a few hours.
 
