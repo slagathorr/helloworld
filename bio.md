@@ -3,3 +3,5 @@ a part of the field team for the [Databricks and SAP partnership](https://www.da
 Brian was an Associate CTO for Data Engineering and Analytics at [SADA Systems](https://sada.com/), helping to lead SADA’s data strategy and helping customers unlock the
 value of their data on Google Cloud. He also held roles in companies like Google Cloud, SAP, and Informatica, he focuses on the data space, and is always looking to 
 help customers innovate with the latest data technologies.
+
+[Headshot Photo](https://drive.google.com/file/d/1AFGB5832CAl_4yKNVHij6ILtLIbaVgZl/view?usp=sharing)
